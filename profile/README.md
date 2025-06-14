@@ -1,4 +1,4 @@
-![image](https://github.com/user-attachments/assets/b21e458a-74a0-4c3f-b867-c6cf491c0972)## 🚀 Crypto30x.com – The Home of High-Leverage Crypto Trading
+## 🚀 Crypto30x.com – The Home of High-Leverage Crypto Trading
 ![image](https://github.com/user-attachments/assets/90ff9a80-8dd3-4d3e-93fa-da701d2e3c5d)
 
 **Crypto30x.com** is your go-to platform for **30x crypto leverage trading**, offering fast, secure, and powerful tools for both beginners and experienced traders. Whether you're looking to multiply gains or hedge your portfolio, our platform delivers top-tier trading options with advanced analytics.
